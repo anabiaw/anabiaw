@@ -7,3 +7,6 @@ Meu nome é Ana Beatriz
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
   ### Você entrar em contato comigo 📫
+
+ana.mota.silva09@escola.pr.gov.br
+@ana.mota.silva
